@@ -20,7 +20,6 @@ Physics background. AI & Data Analysis specialization. 3+ years in high-volume l
 Currently solo-building an AI automation service for SMBs while working full-time in logistics.
 
 **Next stop:** Annecy / Switzerland
-**Final destination:** Gulf region
 
 ---
 
